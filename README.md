@@ -1,0 +1,2 @@
+# latihankedua
+bism
